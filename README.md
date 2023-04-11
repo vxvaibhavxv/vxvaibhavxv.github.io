@@ -1,3 +1,3 @@
-# ItsMrVaibhav.github.io
+# vxvaibhavxv.github.io
 
-Personal Website - https://itsmrvaibhav.github.io/
+Personal Website - https://vxvaibhavxv.github.io/
